@@ -1,0 +1,2 @@
+# Conflict-aConflict-and-Negotiationnd-Negotiation
+Conflict and negotiation are key parts of management. All conflicts do not have to be negative. In “How Management Teams Can Have a Good Fight,” Eisenhardt, Kahwajy, and Bourgeois discuss how successful management teams grow from conflict without turning conflict into interpersonal issues. They discuss six common traits, the use of information, the discussion of alternatives, shared goals, the use of humor, a balance power structure, and the resolution of issues without forcing consensus.
